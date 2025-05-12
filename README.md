@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Zoho
 - 📫 How to reach me Github
 - 😄 Pronouns: Nothing !
-- ⚡ Fun fact: II - year B.tech
+- ⚡ Fun fact: Student 
 
 <!---
 vimalpravin-18/vimalpravin-18 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
